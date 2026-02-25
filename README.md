@@ -8,3 +8,6 @@
 # a7
 # a8
 # a9
+Never give up
+brifht future
+just do it 420
