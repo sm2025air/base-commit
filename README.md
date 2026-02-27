@@ -12,3 +12,4 @@ Never give up
 brifht future
 just do it 420
 this time i am happy
+my life my rule
