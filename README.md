@@ -15,3 +15,4 @@ this time i am happy
 my life my rule
 i am the king
 lets get together
+Allah save us
