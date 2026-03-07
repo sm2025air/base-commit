@@ -19,3 +19,4 @@ Allah save us
 the match is draw
 NRG win today
 whats up friend?
+lets go bro
